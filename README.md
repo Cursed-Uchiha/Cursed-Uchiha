@@ -1,8 +1,7 @@
 ![image](https://github.com/user-attachments/assets/82878884-b7ca-45e3-9447-cd38ba82f0e2)
 
-
-dni under 15 yo!
-dni if you make sauske a bottom twink.... eugh. Hes my kin and it makes me uncomfortable.
-dni if you make a big deal out for pixel pony game normally made for children.
-normal dni , homophic, racist ect. 
-I take a long time to trust people so please dont ask me thibgs that arr personal, i am an adult for lords sake.
+- ᴅɴɪ ᴜɴᴅᴇʀ 15 ʏᴏ!
+- ᴅɴɪ ɪꜰ ʏᴏᴜ ᴍᴀᴋᴇ ꜱᴀᴜꜱᴋᴇ ᴀ ʙᴏᴛᴛᴏᴍ ᴛᴡɪɴᴋ.... ᴇᴜɢʜ. ʜᴇꜱ ᴍʏ ᴋɪɴ ᴀɴᴅ ɪᴛ ᴍᴀᴋᴇꜱ ᴍᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ.
+- ᴅɴɪ ɪꜰ ʏᴏᴜ ᴍᴀᴋᴇ ᴀ ʙɪɢ ᴅᴇᴀʟ ᴏᴜᴛ ꜰᴏʀ ᴘɪxᴇʟ ᴘᴏɴʏ ɢᴀᴍᴇ ɴᴏʀᴍᴀʟʟʏ ᴍᴀᴅᴇ ꜰᴏʀ ᴄʜɪʟᴅʀᴇɴ.
+- ɴᴏʀᴍᴀʟ ᴅɴɪ , ʜᴏᴍᴏᴘʜɪᴄ, ʀᴀᴄɪꜱᴛ ᴇᴄᴛ. 
+- ɪ ᴛᴀᴋᴇ ᴀ ʟᴏɴɢ ᴛɪᴍᴇ ᴛᴏ ᴛʀᴜꜱᴛ ᴘᴇᴏᴘʟᴇ ꜱᴏ ᴘʟᴇᴀꜱᴇ ᴅᴏɴᴛ ᴀꜱᴋ ᴍᴇ ᴛʜɪʙɢꜱ ᴛʜᴀᴛ ᴀʀʀ ᴘᴇʀꜱᴏɴᴀʟ, ɪ ᴀᴍ ᴀɴ ᴀᴅᴜʟᴛ ꜰᴏʀ ʟᴏʀᴅꜱ ꜱᴀᴋᴇ.
