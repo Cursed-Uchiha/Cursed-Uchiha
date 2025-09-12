@@ -4,6 +4,10 @@ To sum it up, you came up to me first, you asked me one, what hair should i use 
 
 i did not copy your ata or your github or your pfps, you are not the center of attention. your delusional. Considering your an adult i thought you woupdbe moved n but your just making it worse. Not only dif you threaten me to put my name out you threatened to make a doc about me. 
 
-im done. trying to ignore you whne you just want to push push push. i litterly cannot see you anymore on ponytown so idk how inwould ever be able to keep copying you. not only that but on of your freinds didnt block me. im consdierign that you use him to spy on me. thats disgusting. im puttting thsi out as yourfinal warning leave me alone or i will report you.
+im done. trying to ignore you whne you just want to push push push. i litterly cannot see you anymore on ponytown so idk how i would ever be able to keep copying you. not only that but one of your freinds didnt block me. im considering that you use him to spy on me. thats disgusting. im putting this out as your final warning leave me alone or i will report you. 
 
 thanks a minor that didnt ask anything.
+
+leaving this out as freindly reminder. i would be using this anymore. and i will leave you alone if you leave me alone. I hope your a responsible adult and will move on like one.
+
+Dni.
