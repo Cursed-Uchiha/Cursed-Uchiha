@@ -8,6 +8,6 @@ im done. trying to ignore you whne you just want to push push push. i litterly c
 
 thanks a minor that didnt ask anything.
 
-leaving this out as freindly reminder. i would be using this anymore. and i will leave you alone if you leave me alone. I hope your a responsible adult and will move on like one.
+leaving this out as freindly reminder. i wont be using this anymore. and i will leave you alone if you leave me alone. I hope your a responsible adult and will move on like one.
 
 Dni.
